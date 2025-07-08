@@ -24,4 +24,4 @@
 4. 尊重版权
 虽然有很多免费的资源，但为了支持创作者和行业发展，尽量通过合法渠道观看内容。避免使用盗版资源，不仅可以避免法律风险，还能帮助创作者提供更多优质内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mua246/35797 ）</span>
